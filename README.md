@@ -4,4 +4,4 @@
 - 💞️ I’m an elite mountain bike racer, bike shop nerd, and former English teacher.
 - 📫 Reach out on Instagram at @abigail_613 or Twitter at @abigailsnyder.
 
-![1AB2810D-C973-4F16-A312-FDA1DD45D3A3](https://user-images.githubusercontent.com/110747121/183305069-de12949c-2df5-4ce2-936e-68c678ad1239.JPEG)
+![_21A5840 copy 2](https://user-images.githubusercontent.com/110747121/204145288-ced0704d-d023-4d19-ae61-41ed356d45ac.jpg)
